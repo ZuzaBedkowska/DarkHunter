@@ -1,0 +1,1 @@
+# StudioGierCiekawych_proj1
